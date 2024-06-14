@@ -1,5 +1,5 @@
 # 💫 About Me:
-Estou cursando o 4° semestre de Análise e Desenvolvimento de Sistemas.<br>Estou procurando Estágio.<br>Tenho 19 anos.<br>
+Estou cursando o 5° semestre de Análise e Desenvolvimento de Sistemas.<br>Estou á procura de Estágio.<br>Tenho 20 anos.<br>
 
 
 ## 🌐 Socials:
