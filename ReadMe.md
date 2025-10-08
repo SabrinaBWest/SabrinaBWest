@@ -1,5 +1,5 @@
 # 💫 About Me:
-Estou cursando Análise e Desenvolvimento de Sistemas.<br>Estou á procura de Estágio.<br>Tenho 20 anos.<br>
+Estou cursando Análise e Desenvolvimento de Sistemas.<br>Estou á procura de Estágio.<br>Tenho 22 anos.<br>
 
 
 ## 🌐 Socials:
